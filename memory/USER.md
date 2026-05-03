@@ -1,0 +1,1 @@
+User name is Emil Shanaty. Active on Telegram, home channel is telegram: Home (ID: 1306814032). Maintains repo https://github.com/emil28092005/My_Hermes for custom skills and memory storage.
